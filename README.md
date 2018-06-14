@@ -1,3 +1,3 @@
-# www.zudana.com
+# mind your own business
 
 if if if
